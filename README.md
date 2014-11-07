@@ -4,4 +4,4 @@
 
 Contact Us
 ==========
-To get in contact with us, Please Join : http://www.hackcommunity.com/index.php
+To get in contact with us, Please Join : http://www.hackcommunity.rocks/index.php
